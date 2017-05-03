@@ -1,1 +1,0 @@
-![Eitan Mosenkis](profile.jpg)
